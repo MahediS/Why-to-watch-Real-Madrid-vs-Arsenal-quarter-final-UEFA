@@ -1,12 +1,6 @@
 # Why-to-watch-Real-Madrid-vs-Arsenal-quarter-final-UEFA
 
 
-💻Best Live Streams for PC/MAC  
-🔴[SiteVisit](https://rb.gy/pisxt3)
-
-📲Mobile  Friendly
-🔴[SiteVisit](https://rb.gy/pisxt3)
-
 
 When does Real Madrid vs. Arsenal quarter-final second leg kick off?
 You are educated on data till October 2023.
